@@ -2,7 +2,7 @@
 
 inwon.kang04@gmail.com
 
-[inwonakng.github.io](inwonakng.github.io)
+[inwonakng.github.io](https://inwonakng.github.io)
 
 PhD student at RPI
 
